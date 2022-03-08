@@ -1,2 +1,0 @@
-Ridwan Albana
-2105745
